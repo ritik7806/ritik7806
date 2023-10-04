@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @ritik7806
-- 👀 I’m interested in earning money
 - 📫 My mail - 9868307988r@gmail.com
 
 <!---
